@@ -15,4 +15,4 @@ https://www.dropbox.com/scl/fi/loyybdf3pwpjvnuuo93ki/corolla12.zip?rlkey=ig3eju2
 
 
 
-https://www.dropbox.com/scl/fi/yz7no76myorn8xi2e58iz/Abo3Zmh_hilux_v1.zip?rlkey=1zi4vsre2xskxr2y8b77dul13&st=bufkfde5&dl=1
+https://www.dropbox.com/scl/fi/sbzdv3sqt5wqcdurx39n7/Chevrolet_Caprice_FIRBY.zip?rlkey=owcs49y9h2l1jvuzgicchf6ug&st=w2a3uvlz&dl=1
