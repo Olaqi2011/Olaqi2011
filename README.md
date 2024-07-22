@@ -14,4 +14,4 @@ https://www.dropbox.com/scl/fi/loyybdf3pwpjvnuuo93ki/corolla12.zip?rlkey=ig3eju2
 
 
 
-https://www.dropbox.com/scl/fi/pfgchpio05jasyvxp9n7b/accent24v1.5.zip?rlkey=6bj1svygp5gpj8fzboe3wg97q&st=4xn731i1&dl=1
+https://www.dropbox.com/scl/fi/2g1qs76p9r991tar32lc0/Hyundai-Accent-2024-BETA-V1.5.zip?rlkey=u7qd9xrvv8oe7lawj8weo6ads&st=054mo2cp&dl=1
