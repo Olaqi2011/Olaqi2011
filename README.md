@@ -4,9 +4,6 @@
 https://www.dropbox.com/scl/fi/wf8et5hkjoa7gmbkuxi66/taskhulix.zip?rlkey=lcl1a81du4q5x0fwruhwpqcpt&st=sbfxe0tk&dl=1
 
 
-اكورد
-https://www.dropbox.com/scl/fi/dpmtacf727o9638fb7j79/Honda_Accord_Pack_FIRBY_modland.zip?rlkey=516a8vu3z0s7wougt903b7nwo&st=5git9a1f&dl=1
-
 
 https://www.dropbox.com/scl/fi/m2zruj2h8ywoc8rarxjhg/Honda-Accord-Pack.zip?rlkey=8w6u8h4e59sd6r98asskqdhua&st=wu83n5n4&dl=0
 
