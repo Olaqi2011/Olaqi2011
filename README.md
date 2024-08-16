@@ -9,6 +9,5 @@ https://www.dropbox.com/scl/fi/m2zruj2h8ywoc8rarxjhg/Honda-Accord-Pack.zip?rlkey
 اكسنت
 https://www.dropbox.com/scl/fi/2mugi23uewxvkwmmgxv8z/Hyundai-Accent-2024-BETA-V1.5.zip?rlkey=je3vkjodpjw8kk6oh0j69sjvl&st=bw1rjwd1&dl=1
 
-
-كروز
-https://www.dropbox.com/scl/fi/8lst00z9d8gzgn7bsrqy0/cruze16.zip?rlkey=v4yst15ib5p1izwiks92szsrj&st=xd7vt07w&dl=1
+اكسنت 18
+https://www.dropbox.com/scl/fi/cyxeehvevvkfc7o5xfdcj/Hyundai_Accent_Solaris_16-17.zip?rlkey=atlspqppnztegydtxqwa6fqu3&st=83x67nr6&dl=1
