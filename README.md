@@ -14,7 +14,6 @@ https://www.dropbox.com/scl/fi/cyxeehvevvkfc7o5xfdcj/Hyundai_Accent_Solaris_16-1
 
 https://www.dropbox.com/scl/fi/sdqzdlgr4f37h39x5tbkn/kn0z_Land_100.V2_Hotfix_modland.zip?rlkey=m4aeptgwikedfv4tp7erij6h9&st=kkq1ne2x&dl=1
 
+افيو
 
-كامري
-
-https://www.dropbox.com/scl/fi/5s8h3mjlnfahhgrjglmlx/iSicecamry2011.zip?rlkey=hs4k7nqo4x9rovai326nbbcvu&st=nm3yp0xt&dl=1
+https://www.dropbox.com/scl/fi/ked7gkjqt05f7siygo0z0/aveot250.zip?rlkey=jf8hjd4g5dwhlr7f7u28km9th&st=zde5r1zt&dl=1
