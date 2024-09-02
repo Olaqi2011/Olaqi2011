@@ -4,8 +4,8 @@
 https://www.dropbox.com/scl/fi/5qbh4qz2170ahavnoq0qa/Alley.zip?rlkey=5hapfo8z7fkh2p9i03rah14ie&st=5iedftjw&dl=1
 
 
-انوفا
-https://www.dropbox.com/scl/fi/9n8fctqshu0eal9gxrm5h/Beef_Innova_Reborn.zip?rlkey=dxv8ub6ztgl0vegnfrkhbropc&st=qapz81cm&dl=1
+لاند
+https://www.dropbox.com/scl/fi/sdqzdlgr4f37h39x5tbkn/kn0z_Land_100.V2_Hotfix_modland.zip?rlkey=m4aeptgwikedfv4tp7erij6h9&st=3iu7p5vm&dl=1
 
 
 
