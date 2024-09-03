@@ -21,3 +21,7 @@ https://www.dropbox.com/scl/fi/ked7gkjqt05f7siygo0z0/aveot250.zip?rlkey=jf8hjd4g
 
 كورلا
 https://www.dropbox.com/scl/fi/j0gyr0nsrqqigc7v7fquu/wLi-corolla.zip?rlkey=9vsek9s98rmwy742531wal86g&st=g24n7mab&dl=1
+
+
+ماب
+https://www.dropbox.com/scl/fi/ah56vglzklp9z9xe6m5rv/m7highway2.zip?rlkey=tpehn787m8wcqu0wvdwk564mq&st=yypwulbt&dl=1
