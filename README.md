@@ -13,9 +13,8 @@ https://www.dropbox.com/scl/fi/cyxeehvevvkfc7o5xfdcj/Hyundai_Accent_Solaris_16-1
 عثيم السلي
 https://www.dropbox.com/scl/fi/2fgpmhlgen89xk65r7wgw/3thim_AL_SLy.zip?rlkey=hvevd3h6hgu3jjqvwf8ixdrqp&st=rl46yuco&dl=1
 
-
-كورلا
-https://www.dropbox.com/scl/fi/j0gyr0nsrqqigc7v7fquu/wLi-corolla.zip?rlkey=9vsek9s98rmwy742531wal86g&st=g24n7mab&dl=1
+التيما
+https://www.dropbox.com/scl/fi/xqu2x75yo1d4v4puxm5ls/l32.zip?rlkey=51flh69bowpwf8he7jztws0s1&st=184k2im7&dl=1
 
 ماب
 https://www.dropbox.com/scl/fi/kgnbsdurewewie13ymlhq/BeefKSAStreet.zip?rlkey=d5tq036vmcc50km4ao9bnhrgm&st=wffd9qtb&dl=1
