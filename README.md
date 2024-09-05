@@ -23,11 +23,12 @@ https://www.dropbox.com/scl/fi/xqu2x75yo1d4v4puxm5ls/l32.zip?rlkey=51flh69bowpwf
 https://www.dropbox.com/scl/fi/kgnbsdurewewie13ymlhq/BeefKSAStreet.zip?rlkey=d5tq036vmcc50km4ao9bnhrgm&st=wffd9qtb&dl=1
 
 
-تاهو
-https://www.dropbox.com/scl/fi/rd94lnz79p2cs6vqassoc/Chevrolet-Tahoe-V2.zip?rlkey=0s2e678vwpmv2etrroyx8ciqv&st=sco38f6z&dl=1
-
-
 
 سيراتو
 
 https://www.dropbox.com/scl/fi/sw82mkbxdjsfc7vnagp92/CeratoFIR.zip?rlkey=uhf55uwgcw8ni4yl79t790m69&st=2guayqfc&dl=1
+
+
+
+تاهو
+https://www.dropbox.com/scl/fi/0j8s3a7i2zqdn2jkal5f6/Chevrolet_Tahoe_2020_v2.1.zip?rlkey=mzjo13n43og1plp7650d9ew89&st=9ou0x4l3&dl=1
