@@ -40,5 +40,5 @@ https://www.dropbox.com/scl/fi/fjeyb7d9dwf7coagixcjp/levels.zip?rlkey=8ht74961xi
 
 
 
-اكسنت 24
-https://www.dropbox.com/scl/fi/54ghghdjrblh9ls3z341c/accent24v1.5.zip?rlkey=3ygis7hpum5er0qbzx31kncwx&st=8ue6stoy&dl=1
+كامري
+https://www.dropbox.com/scl/fi/g91jmayk9eq0d8hfm673r/Camry11_By_Abdo_Husyan_V2.zip?rlkey=qom2jsu4p357y5an1uwnpump9&st=y58ypsg8&dl=0
