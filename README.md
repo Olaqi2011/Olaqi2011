@@ -30,8 +30,8 @@ https://www.dropbox.com/scl/fi/sw82mkbxdjsfc7vnagp92/CeratoFIR.zip?rlkey=uhf55uw
 
 
 
-تاهو
-https://www.dropbox.com/scl/fi/0j8s3a7i2zqdn2jkal5f6/Chevrolet_Tahoe_2020_v2.1.zip?rlkey=mzjo13n43og1plp7650d9ew89&st=9ou0x4l3&dl=1
+ماب الدايري
+https://www.dropbox.com/scl/fi/6wbz5lb3kpj9k5br5qplr/drive_dayere.zip?rlkey=xv6gws0kf1mna637rz0rnfvhw&st=zd38zu6n&dl=0
 
 
 
