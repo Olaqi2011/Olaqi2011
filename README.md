@@ -16,7 +16,7 @@ https://www.dropbox.com/scl/fi/2fgpmhlgen89xk65r7wgw/3thim_AL_SLy.zip?rlkey=hvev
 
 التيما
 
-https://www.dropbox.com/scl/fi/xqu2x75yo1d4v4puxm5ls/l32.zip?rlkey=51flh69bowpwf8he7jztws0s1&st=98b65rfz&dl=0
+https://www.dropbox.com/scl/fi/xqu2x75yo1d4v4puxm5ls/l32.zip?rlkey=51flh69bowpwf8he7jztws0s1&st=98b65rfz&dl=1
 
 
 ماب
@@ -31,7 +31,7 @@ https://www.dropbox.com/scl/fi/sw82mkbxdjsfc7vnagp92/CeratoFIR.zip?rlkey=uhf55uw
 
 
 ماب الدايري
-https://www.dropbox.com/scl/fi/6wbz5lb3kpj9k5br5qplr/drive_dayere.zip?rlkey=xv6gws0kf1mna637rz0rnfvhw&st=zd38zu6n&dl=0
+https://www.dropbox.com/scl/fi/6wbz5lb3kpj9k5br5qplr/drive_dayere.zip?rlkey=xv6gws0kf1mna637rz0rnfvhw&st=zd38zu6n&dl=1
 
 
 
@@ -41,9 +41,9 @@ https://www.dropbox.com/scl/fi/fjeyb7d9dwf7coagixcjp/levels.zip?rlkey=8ht74961xi
 
 
 كامري
-https://www.dropbox.com/scl/fi/g91jmayk9eq0d8hfm673r/Camry11_By_Abdo_Husyan_V2.zip?rlkey=qom2jsu4p357y5an1uwnpump9&st=y58ypsg8&dl=0
+https://www.dropbox.com/scl/fi/g91jmayk9eq0d8hfm673r/Camry11_By_Abdo_Husyan_V2.zip?rlkey=qom2jsu4p357y5an1uwnpump9&st=y58ypsg8&dl=1
 
 
 
 اكسنت 24
-https://www.dropbox.com/scl/fi/g4etylkn6b7pite737ibl/accent.zip?rlkey=13bnckqma9k0nwqfg7wfedhwx&st=sgj9zbc9&dl=0
+https://www.dropbox.com/scl/fi/g4etylkn6b7pite737ibl/accent.zip?rlkey=13bnckqma9k0nwqfg7wfedhwx&st=sgj9zbc9&dl=1
