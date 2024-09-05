@@ -37,3 +37,8 @@ https://www.dropbox.com/scl/fi/0j8s3a7i2zqdn2jkal5f6/Chevrolet_Tahoe_2020_v2.1.z
 
 ماب سفر هجوله
 https://www.dropbox.com/scl/fi/fjeyb7d9dwf7coagixcjp/levels.zip?rlkey=8ht74961xia1n4b9j3i4sif4m&st=q109wpqc&dl=1
+
+
+
+اكسنت 24
+https://www.dropbox.com/scl/fi/54ghghdjrblh9ls3z341c/accent24v1.5.zip?rlkey=3ygis7hpum5er0qbzx31kncwx&st=8ue6stoy&dl=1
