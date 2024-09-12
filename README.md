@@ -14,19 +14,13 @@ https://www.dropbox.com/scl/fi/cyxeehvevvkfc7o5xfdcj/Hyundai_Accent_Solaris_16-1
 https://www.dropbox.com/scl/fi/2fgpmhlgen89xk65r7wgw/3thim_AL_SLy.zip?rlkey=hvevd3h6hgu3jjqvwf8ixdrqp&st=rl46yuco&dl=1
 
 
-التيما
-
-https://www.dropbox.com/scl/fi/xqu2x75yo1d4v4puxm5ls/l32.zip?rlkey=51flh69bowpwf8he7jztws0s1&st=98b65rfz&dl=1
-
 
 ماب
 https://www.dropbox.com/scl/fi/kgnbsdurewewie13ymlhq/BeefKSAStreet.zip?rlkey=d5tq036vmcc50km4ao9bnhrgm&st=wffd9qtb&dl=1
 
 
-
-سيراتو
-
-https://www.dropbox.com/scl/fi/sw82mkbxdjsfc7vnagp92/CeratoFIR.zip?rlkey=uhf55uwgcw8ni4yl79t790m69&st=2guayqfc&dl=1
+مونتيرو
+https://www.dropbox.com/scl/fi/g6p6q4b4l16ah7jp8pbs5/pajeroSport.zip?rlkey=uipm7l5bk3gbkvb9azg6qfpbs&st=0aiq4e41&dl=1
 
 
 
@@ -39,11 +33,3 @@ https://www.dropbox.com/scl/fi/6wbz5lb3kpj9k5br5qplr/drive_dayere.zip?rlkey=xv6g
 https://www.dropbox.com/scl/fi/fjeyb7d9dwf7coagixcjp/levels.zip?rlkey=8ht74961xia1n4b9j3i4sif4m&st=q109wpqc&dl=1
 
 
-
-كامري
-https://www.dropbox.com/scl/fi/g91jmayk9eq0d8hfm673r/Camry11_By_Abdo_Husyan_V2.zip?rlkey=qom2jsu4p357y5an1uwnpump9&st=y58ypsg8&dl=1
-
-
-
-اكسنت 24
-https://www.dropbox.com/scl/fi/g4etylkn6b7pite737ibl/accent.zip?rlkey=13bnckqma9k0nwqfg7wfedhwx&st=sgj9zbc9&dl=1
